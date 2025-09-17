@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm Tarik<br>I'm 24 years old.<br>I'm a student at Alfa-College<br>I live in Groningen/Netherlands
+I'm Tarik Eren<br>24 years old.<br>Student at Alfa-College<br>Live in Groningen/Netherlands
 
 
 ## 🌐 Socials:
